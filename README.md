@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Financial46. I am SEO at Dansk Gældsrådgivning ApS
+- 👋 Hi, I’m @Financial46. I am CEO of the company Dansk Gældsrådgivning ApS
 - 👀 I’m interested in Financial projects
 - 📫 How to reach me https://gaeldsraadgivning.dk/
 <!---
